@@ -1,6 +1,7 @@
 # Halo semua! 
 Perkenalkan nama saya **Irhan Hisyam Dwi Nugroho**.\
 Saya seorang **Mahasiswa** di [Universitas Pendidikan Ganesha](https://undiksha.ac.id/).\
+portofolio saya [irhanhisyam.my.id](irhanhisyam.my.id)
 Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/irhanhisyamdwinugroho/)ku ya.
  
 <p align="left">
